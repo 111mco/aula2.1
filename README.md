@@ -1,1 +1,1 @@
-Bruna Marquezine, Larissa Manoela, Jean Paulo
+Bruna Marquezine, Larissa, Jean Paulo, Camila Rodrigues
