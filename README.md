@@ -1,1 +1,1 @@
-Bruna Marquezine, Larissa, Jean Paulo, Camila Rodrigues
+Bruna Marquezine, Larissa, Jean Paulo, Jair
